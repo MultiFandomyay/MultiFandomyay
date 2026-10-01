@@ -1,5 +1,5 @@
 ## planetlord..
-![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/REJOICE%20FANART!%20%F0%9F%8C%BB%F0%9F%92%9B.jpg?raw=true) 
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/Planetlord%20art,,%20Bigballsgamer9000%20(@yuviarien)%20on%20X.jpg?raw=true) 
 
 they / them        13+
 <br><br><br>25+ dni   fictiosexual 
