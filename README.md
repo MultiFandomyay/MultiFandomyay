@@ -1,12 +1,13 @@
 ## planetlord..
-![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/Planetlord%20art,,%20Bigballsgamer9000%20(@yuviarien)%20on%20X.jpg?raw=true) 
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/334251603617204402.jpg?raw=true)
+
 
 they / them        13+
 <br><br><br>25+ dni   fictiosexual 
 
 .<br><br><br><br>planetlord and rejoicin fan
 
-![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/%E2%80%A2~planetlord%20&%20parrotX2~%E2%80%A2%20Paralysis%20Duo.jpg?raw=true)
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/Planetlord%20art,,%20Bigballsgamer9000%20(@yuviarien)%20on%20X.jpg?raw=true)
 
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
 
