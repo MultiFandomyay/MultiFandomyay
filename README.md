@@ -1,5 +1,5 @@
 ## planetlord..
-![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/334251603617204402.jpg?raw=true)
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
 they / them        13+
