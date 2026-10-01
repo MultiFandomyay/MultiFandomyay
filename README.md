@@ -5,7 +5,7 @@ they / them
 
 fictiosexual .<br><br><br><br>planetlord and rejoicin fan
 
-![image](blob:https://www.pinterest.com/6d0fafb5-ca7f-4164-b400-b6f0549eb20c)
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/%E2%80%A2~planetlord%20&%20parrotX2~%E2%80%A2%20Paralysis%20Duo.jpg?raw=true)
 ## Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
 
