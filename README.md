@@ -3,7 +3,7 @@
 
 
 they / them        13+
-<br><br><br>25+ dni   fictiosexual 
+<br><br><br>25+ dni.         im fictiosexual !
 
 .<br><br><br><br>planetlord and rejoicin fan
 
