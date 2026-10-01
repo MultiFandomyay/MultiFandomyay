@@ -11,10 +11,6 @@ fictiosexual .<br><br><br><br>planetlord and rejoicin fan
 
 #  Tech Stack:
 ![Blender](https://img.shields.io/badge/blender-%23F5792A.svg?style=for-the-badge&logo=blender&logoColor=white) ![Storybook](https://img.shields.io/badge/-Storybook-FF4785?style=for-the-badge&logo=storybook&logoColor=white) ![Adobe Creative Cloud](https://img.shields.io/badge/Adobe%20Creative%20Cloud-DA1F26.svg?style=for-the-badge&logo=Adobe%20Creative%20Cloud&logoColor=white)
-# GitHub Stats:
-![](https://github-readme-stats.shion.dev/api?username=MultiFandomyay&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
-![](https://streak-stats.demolab.com/?user=MultiFandomyay&theme=dark&hide_border=false)<br/>
-![](https://github-readme-stats.shion.dev/api/top-langs/?username=MultiFandomyay&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
 
 ---
 [![](https://komarev.com/ghpvc/?username=MultiFandomyay&icon=10&color=0)](https://visitcount.itsvg.in)
