@@ -1,12 +1,13 @@
 ## planetlord..
-# About Me:
-they / them    
-13+<br><br><br>25+ dni      
+![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/REJOICE%20FANART!%20%F0%9F%8C%BB%F0%9F%92%9B.jpg?raw=true) 
 
-fictiosexual .<br><br><br><br>planetlord and rejoicin fan
+they / them        13+
+<br><br><br>25+ dni   fictiosexual 
+
+.<br><br><br><br>planetlord and rejoicin fan
 
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/%E2%80%A2~planetlord%20&%20parrotX2~%E2%80%A2%20Paralysis%20Duo.jpg?raw=true)
-## Socials:
+
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
 
 
