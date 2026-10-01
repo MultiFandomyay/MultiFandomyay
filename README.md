@@ -14,7 +14,7 @@ they / them        13+
 
 
 ---
-[![](https://komarev.com/ghpvc/?username=MultiFandomyay&icon=10&color=0)](https://visitcount.itsvg.in)
+
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 <!--
