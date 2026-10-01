@@ -2,10 +2,10 @@
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
-they / them        13+
-<br><br><br>25+ dni.    
+#### they / them        13+
+###### <br><br><br>25+ dni.    
 
-im fictiosexual !
+# im fictiosexual !
 
 
 
