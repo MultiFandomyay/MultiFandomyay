@@ -1,17 +1,17 @@
 ## planetlord..
-# 💫 About Me:
+# About Me:
 they / them    
 13+<br><br><br>25+ dni      
 
 fictiosexual .<br><br><br><br>planetlord and rejoicin fan
 
 
-## 🌐 Socials:
+## Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
 
-# 💻 Tech Stack:
+#  Tech Stack:
 ![Blender](https://img.shields.io/badge/blender-%23F5792A.svg?style=for-the-badge&logo=blender&logoColor=white) ![Storybook](https://img.shields.io/badge/-Storybook-FF4785?style=for-the-badge&logo=storybook&logoColor=white) ![Adobe Creative Cloud](https://img.shields.io/badge/Adobe%20Creative%20Cloud-DA1F26.svg?style=for-the-badge&logo=Adobe%20Creative%20Cloud&logoColor=white)
-# 📊 GitHub Stats:
+# GitHub Stats:
 ![](https://github-readme-stats.shion.dev/api?username=MultiFandomyay&theme=dark&hide_border=false&include_all_commits=false&count_private=false)<br/>
 ![](https://streak-stats.demolab.com/?user=MultiFandomyay&theme=dark&hide_border=false)<br/>
 ![](https://github-readme-stats.shion.dev/api/top-langs/?username=MultiFandomyay&theme=dark&hide_border=false&include_all_commits=false&count_private=false&layout=compact)
