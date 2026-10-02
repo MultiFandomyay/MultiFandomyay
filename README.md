@@ -12,8 +12,7 @@
 
 
 
-
-![GitHub Views](https://gitviews.com/user/MultiFandomyay)
+[GitHub Views](https://gitviews.com/user/MultiFandomyay)
 
 
 
