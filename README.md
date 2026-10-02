@@ -31,3 +31,12 @@
 
 
 
+
+.
+
+
+
+
+![image](https://raw.githubusercontent.com/MultiFandomyay/planetlord/09d7d00c6d377571dd619631004f2eb3af928893/image.webp)
+
+### YOU GUYS ARE AMAZING^_^
