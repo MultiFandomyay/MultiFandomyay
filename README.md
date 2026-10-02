@@ -12,7 +12,6 @@
 
 
 
-[GitHub Views](https://gitviews.com/user/MultiFandomyay)
 
 
 
