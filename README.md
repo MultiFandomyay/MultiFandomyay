@@ -22,7 +22,7 @@
 
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/Planetlord%20art,,%20Bigballsgamer9000%20(@yuviarien)%20on%20X.jpg?raw=true)
 
-[![Discord](scordhttps://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
+![Discord](scordhttps://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/mello._.wowie1) 
 
 
 ![strawpage](https://melloyay.straw.page) 
