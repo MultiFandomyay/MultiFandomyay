@@ -2,7 +2,7 @@
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
-#### they / them        13+
+#### "**color**: purple">they / them </span>       13+
 ##### <br><br><br>25+ dni.    
 
 ###### im fictiosexual ! . . . . . @Ponytowns-rewards  thank you somuch!!! ^_^
