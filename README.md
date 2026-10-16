@@ -2,12 +2,12 @@
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
-$\color{#715390}{\textsf{they / them       13+}}$
+$\color{#9f88aa}{\textsf{they / them       13+}}$
 
-##### <br><br><br>25+ dni.    
+$\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
-###### im fictiosexual ! . . . . . @Ponytowns-rewards  thank you somuch!!! ^_^
+ $\color{#715390}{\textsf{im fictiosexual ! . . . . . @Ponytowns-rewards  thank you somuch!!! ^_^}}$ 
 
 
 
@@ -24,7 +24,8 @@ $\color{#715390}{\textsf{they / them       13+}}$
 
 
 
-# .<br><br><br><br>planetlord and rejoicin fan !!!!
+$\color{#b87ed4}{\textsf{planetlord and rejoicin fan !!!!}}$
+
 
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/Planetlord%20art,,%20Bigballsgamer9000%20(@yuviarien)%20on%20X.jpg?raw=true)
 
