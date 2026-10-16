@@ -7,7 +7,7 @@ $\color{#9f88aa}{\textsf{they / them       13+}}$
 $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
- $\color{#875d9b0}{\textsf{im fictiosexual ! . . . . . @ Ponytowns-rewards  thank you somuch!!! }}$ 
+ $\color{#875d9b}{\textsf{im fictiosexual ! . . . . . Ponytowns-rewards  thank you somuch!!! }}$ 
 
 
 
