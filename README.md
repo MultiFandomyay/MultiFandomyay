@@ -29,7 +29,7 @@ $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
 
-. . . . $\color{#761d9f}{\textsf{" do you believe love at first sight ? "}}$
+. . . . $\color{#761d9f}{\textsf{" do you believe in love at first sight ? "}}$
 
 
 
