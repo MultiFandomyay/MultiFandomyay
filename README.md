@@ -2,9 +2,9 @@
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
-$\color{#9f88aa}{\textsf{they / them       13+}}$
+#### $\color{#9f88aa}{\textsf{they / them       13+}}$
 
-$\color{#9f88aa}{\textsf{25+ dniuf}}$
+### $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
  ### $\color{#875d9b}{\textsf{im fictiosexual ! . . . . . Ponytowns-rewards  thank you somuch!!! }}$ 
@@ -50,7 +50,7 @@ $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
 
 
-. . . .  $\color{#761d9f}{\textsf{" do you believe in love at first sight ? "}}$
+## $\color{#761d9f}{\textsf{" do you believe in love at first sight ? "}}$
 
 
 
