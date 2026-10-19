@@ -2,7 +2,7 @@
 ![image](https://github.com/MultiFandomyay/MultiFandomyay/blob/main/45810121243906490.jpg?raw=true)
 
 
-#### $\color{#9f88aa}{\textsf{they / them       13+}}$
+### $\color{#9f88aa}{\textsf{they / them       13+}}$
 
 ### $\color{#9f88aa}{\textsf{25+ dniuf}}$
 
@@ -36,7 +36,7 @@
 
 .
 
-##### [ata . ♡](https://doI9hin.atabook.org/)  .    [straw . ♡](https://melloyay.straw.page)
+### [ata . ♡](https://doI9hin.atabook.org/)  .    [straw . ♡](https://melloyay.straw.page)
 
 .
 
