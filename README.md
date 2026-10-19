@@ -15,28 +15,28 @@
 
 
 
+
+
+.
+
+
+
+
+
+
+
+
+
+.
+
+
+
+
+
+
+.
+
 ##### [ata . ♡](https://doI9hin.atabook.org/)  .    [straw . ♡](https://melloyay.straw.page)
-
-
-
-.
-
-
-
-
-
-
-
-
-
-.
-
-
-
-
-
-
-.
 
 .
 
